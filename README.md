@@ -1,1 +1,1 @@
-"Welcome to the JHChoi World"
+"Welcome to the JaeHee Choi World"
